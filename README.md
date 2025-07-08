@@ -1,3 +1,3 @@
-🎨 Premium Minifig Customisation
-🤝 Collaborations & Commissions
+🎨 Premium Minifig Customisation  
+🤝 Collaborations & Commissions  
 💎 Handcrafted Precision & Stuff
